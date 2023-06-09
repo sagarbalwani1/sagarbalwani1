@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sagarbalwani1
-- 👀 I’m interested in Computer, coding and programming.
+- 👀 I’m interested in Computers, Programming and AI.
 - 🌱 I’m currently learning BCA at a university.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:- (sagarbalwani1@gmail.com)
